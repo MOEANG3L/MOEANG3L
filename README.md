@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 <!--
-**inteyvatt/inteyvatt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**MOEANG3L/MOEANG3L** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
