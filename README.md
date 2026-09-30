@@ -1,6 +1,6 @@
 ૮꒰ ˶• ༝ •˶꒱ა *HM to my bf lumii :3* ♡
 
-<img width="736" height="429" alt="c4ee0bac3b04be56e4293ad28af6fde1" src="https://github.com/user-attachments/assets/4ac478d7-a543-4f30-bbf7-aa3c32bf89ed" />
+<img width="736" height="414" alt="38c0e580dc34aa56e39f667a9fba8955" src="https://github.com/user-attachments/assets/f69b93d1-fcd3-426c-b387-94af1fbdf975" />
 
 
 
